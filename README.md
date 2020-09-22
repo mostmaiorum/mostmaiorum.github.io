@@ -1,4 +1,3 @@
-# mostmaiorum.github.io
 ##  Vamos a hablar un poco de series, entre todo ese fango destaquemos algunas y marquemos otras para no perder ese tiempo tan valioso...
 
 | Serie | Critica | Clasificación |
